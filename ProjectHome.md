@@ -1,0 +1,1 @@
+Sistema de apoyo en los procesos llevados a cabo por el departamento de control escolar de una escuela primaria
